@@ -1,0 +1,2 @@
+# fkm
+amenq dvka s
